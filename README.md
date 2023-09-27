@@ -1,2 +1,2 @@
-# jiahao.li.github.io
-LXJHRQ's HOME
+# [jiahao.li.github.io](https://jiahao.lxjhrq.com/)https://jiahao.lxjhrq.com/
+JIAHAO's HOME
